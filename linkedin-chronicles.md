@@ -5,7 +5,7 @@
 ----
 ### 28.08.2024
 
-![alt text](img/20240828.jpg)
+![alt text](img/20240828.png)
 
 Открыл LinkedIn.
 
